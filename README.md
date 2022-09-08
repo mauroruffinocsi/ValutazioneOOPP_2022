@@ -1,0 +1,1 @@
+# ValutazioneOOPP_2022
